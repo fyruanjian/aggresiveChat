@@ -20,5 +20,5 @@
 ## 联系方式
 
 - Telegram
-  @tranlico
+ [ @tranlico](https://t.me/Tranlico)
 
