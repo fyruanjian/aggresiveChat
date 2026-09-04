@@ -18,7 +18,7 @@
 
 
 ## 联系方式
---有任何意愿想法联系--
+**有意联系**
 - Telegram
  [ @tranlico](https://t.me/Tranlico)
 
